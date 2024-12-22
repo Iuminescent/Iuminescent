@@ -6,7 +6,7 @@
 
 <p align="center"
 
-✦　︵︵　[rentry](https://rentry.co/lumine-scent) ‧ [retrospring](https://retrospring.net/@fennebat)　♡( ◡‿◡ )
+✦　︵︵　[rentry](https://rentry.co/soyobun) ‧ [retrospring](https://retrospring.net/@fennebat)　♡( ◡‿◡ )
 </p>
 
 <p align="center">
