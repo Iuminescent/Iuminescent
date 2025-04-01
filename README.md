@@ -6,7 +6,7 @@
 
 <p align="center"
 
-✦　︵︵　[rentry](https://rentry.co/soyobun) ‧ [retrospring](https://retrospring.net/@fennebat)　♡( ◡‿◡ )
+✦　︵︵　[rentry](https://rentry.co/suasilly) ‧ [spring](https://spring.love4eva.net/@narancia)　♡( ◡‿◡ )
 </p>
 
 <p align="center">
