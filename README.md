@@ -6,7 +6,7 @@
 
 <p align="center"
 
-✦　︵︵　[rentry](https://rentry.co/suasilly) ‧ [tetratto](https://tetratto.con/@jolyne)　♡( ◡‿◡ )
+✦　︵︵　[rentry](https://rentry.co/suasilly) ‧ [atabook](https://narancia.atabook.org)　♡( ◡‿◡ )
 </p>
 
 <p align="center">
