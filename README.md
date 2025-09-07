@@ -6,7 +6,7 @@
 
 <p align="center"
 
-✦　︵︵　[rentry](https://rentry.co/suasilly) ‧ [atabook](https://narancia.atabook.org)　♡( ◡‿◡ )
+✦　︵︵　[rentry](https://rentry.co/pleiade) ‧ [atabook](https://narancia.atabook.org)　♡( ◡‿◡ )
 </p>
 
 <p align="center">
